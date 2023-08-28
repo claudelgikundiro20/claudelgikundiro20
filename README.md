@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @claudelgikundiro20
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... рек
 - 💞️ I’m looking to collaborate on ...8568dtear
 - 📫 How to reach me ...116534fh j hrstyzfdgfljuh tera retherht ert hr yw4546н кеer h
 22g43t34hw rthw
